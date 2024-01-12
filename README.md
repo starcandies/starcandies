@@ -1,5 +1,3 @@
-> hi, I’m @starcandies or brandi !! i'm **19**, and i use she/they pronouns :3
-> 
 > users -16 please dni, thank you >_< !!
 >
 > tonetags are appreciated greatly when around me !!
