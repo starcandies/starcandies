@@ -4,7 +4,8 @@
 >
 > tonetags are appreciated greatly when around me !!
 >
-> when in pt feel free to whisper me at anytime, as i'm usually afk + **C + H** 
+> when in pt feel free to whisper me at anytime, as i'm usually afk & **C + H**
+> kisses n cuddles in pt are awesome i welcome them :3
 >
 > i _don't_ accept random frqs unless we've talked before/know eachother ⭐ and please respect my boundaries.
 
