@@ -1,3 +1,5 @@
+> hello !! i'm brandi :p
+> 
 > users -16 please dni, thank you >_< !!
 >
 > tonetags are appreciated greatly when around me !!
