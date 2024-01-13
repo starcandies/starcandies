@@ -4,7 +4,7 @@
 >
 > tonetags are appreciated greatly when around me !!
 >
-> when in pt feel free to whisper me at anytime, as i'm usually afk <3
+> when in pt feel free to whisper me at anytime, as i'm usually afk <3 C + H !! <3
 >
 > i _don't_ accept random frqs unless we've talked before/know eachother ⭐ and please respect my boundaries.
 
